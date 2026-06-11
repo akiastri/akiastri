@@ -9,7 +9,7 @@
 
 *<sub><small>cr: oscgoat</small></sub>*
 
-under 16 iwc . c+h & int freely . sign <a href="https://papayaoi.atabook.org/">ata</a>
+those who are under 16 iwc . c+h & int freely . sign <a href="https://papayaoi.atabook.org/">ata</a>
 
 if you talk to me i'll probably try to match to your energy :) 
 
