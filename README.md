@@ -1,4 +1,4 @@
 <div align="center">
 
-![.](https://cdn.discordapp.com/attachments/882873772661678110/1514634561638764584/05880E70-1B35-4ADC-9F88-13A4B65EEF3C.gif?ex=6a2c14dc&is=6a2ac35c&hm=1ef0f95c8f9fa35991fc120fdb79b70c89fb8c44885ac288e9149135c5c00a38)
+![.](https://64.media.tumblr.com/7b345e3e503a4a891acb3fbf7792d18c/44bf1955d7a02cb7-67/s1280x1920/41333c60e916d342bd680edb07ecd8264f30cb20.gifv)
 
